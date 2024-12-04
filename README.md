@@ -2,7 +2,7 @@
 
 # Programming tutoring, add me if you need it
 
-## WeChat: dlmdff 
+## WeChat: richasara 
 
 ## QQ： 16663755
 
